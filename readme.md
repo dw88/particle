@@ -1,6 +1,6 @@
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/hzhen5.jpg" width=640></a>
 <h2><strong><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/fngrchn3.jpg" width=640></a>
 
 
 
@@ -10,26 +10,26 @@
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
 <strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
-[自由门vpn（安卓版1.1)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/fgvpn.apk)
+[自由门vpn（安卓版1.1)](https://cdn.jsdelivr.net/gh/dw88/apk@1.0.0/fgvpn.apk)
 
-[自由门（安卓版5.0)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/fgma.apk)
+[自由门（安卓版5.0)](https://cdn.jsdelivr.net/gh/dw88/apk@1.0.0/fgma.apk)
 
-[自由门（电脑版7.96)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/fg796p.zip)
+[自由门（电脑版7.96)](https://cdn.jsdelivr.net/gh/dw88/apk@1.0.0/fg796p.zip)
 
-[无界浏览（安卓版5.0)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/um5.0.apk)
+[无界浏览（安卓版5.0)](https://cdn.jsdelivr.net/gh/dw88/apk@1.0.0/um5.0.apk)
 
-[无界浏览（电脑版21.20)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/u2120.zip)
+[无界浏览（电脑版21.20)](https://cdn.jsdelivr.net/gh/dw88/apk@1.0.0/u2120.zip)
 
-[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/jyg802.apk)
+[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/dw88/apk@1.0.0/jyg802.apk)
 
-[环门（安卓版053)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/oGatea053.apk)
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+[环门（安卓版053)](https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/oGatea053.apk)
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -80,7 +80,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/fngrchn3.jpg" width=640></a>
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><div align="center">
 <h2><p><div><strong>王友群：第十任中共党魁江泽民面临的最后结局</strong></p></h2>
@@ -224,37 +224,37 @@
 <p><div align=center><h2><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/fngrchn3.jpg" width=640></a>
  
   <h2><p><div><strong>法轮功真相图片展</strong></p></h2>
  
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/flg_29.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/8.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/18.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/19.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/20.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/21.jpg" width=640></a>
- <div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/22.jpg" width=640></a>
- <div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/23.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/26.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/27.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/28.jpg" width=640></a>
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/35.jpg" width=640></a>
- <div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/38.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/flg_29.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/8.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/18.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/19.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/20.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/21.jpg" width=640></a>
+ <div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/22.jpg" width=640></a>
+ <div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/23.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/26.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/27.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/28.jpg" width=640></a>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/35.jpg" width=640></a>
+ <div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/38.jpg" width=640></a>
  
-<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a></div>
+<div align="center"><a href="https://dw88.github.io?p=60b99713e5111e12130"><IMG SRC="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/fngrchn3.jpg" width=640></a></div>
 
   
 <div align="center"><h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
 
  <div align="center"><a href="https://github.com/dw88/
-particle/blob/master/readme.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme_qr.jpg" title="分享本平台"></img></a>
+particle/blob/master/readme25.md"><img src="https://cdn.jsdelivr.net/gh/dw88/image@1.0.0/dw88_readme_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h4>请收藏本站网址：https://github.com/dw88/particle/blob/master/readme.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
 <div align=center><h3>https://is.gd/smdhh </h3></div>
-<div align=center><h3>https://git.io/smdhh  </h3></div>
-<div align=center><h3>https://cutt.ly/smdhh </h3></div>
+<div align=center><h3>https://git.io/smdhh </h3></div>
+<div align=center><h3>https://cutt.ly/smdhh</h3></div>
 
 
